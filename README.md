@@ -1,0 +1,1 @@
+#these are just random scripts and snippets i've done over time
